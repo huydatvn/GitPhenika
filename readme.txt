@@ -1,59 +1,6 @@
-Em đi mất rồi, còn anh ở lại …
-Người giờ còn đây không? Thuyền này còn liệu sang sông?
-Buổi chiều dài mênh mông, lòng người giờ hòa hay đông
-Hồng mắt em cả bầu trời đỏ hoen
-Ta như đứa trẻ ngây thơ, quên đi tháng ngày ngu ngơ
-Người là ngàn mây bay, mình là giọt sầu chia tay
-Người cạn bầu không say, còn mình giãi bày trong đây
-Này gió ơi, đừng vội vàng, lắng nghe được không?
-
-Gió ơi xin đừng lấy em đi
-Hãy mang em về chốn xuân thì
-Ngày nào còn bồi hồi tóc xanh
-Ngày nào còn trò chuyện vớ anh
-Em nói em thương anh mà
-Nói em yêu em mà
-Cớ sao ta lại hóa chia xa
-Đóa phong lan lặng lẽ mơ màng
-Nàng dịu dàng tựa đèn phố Vinh
-Đẹp rạng ngời chẳng cần cố Xinh
-Hạt ngọc rơi rớt trên mái nhà, sau luống cà, và thế là …
-Xa nhau, xa nhau, thôi thì nỗi nhớ hà cớ gì người mang? Woo..
-
-Bên nhau không lâu, như là người thấy tờ giấy này nghìn trang …
-Vậy hãy để màu nắng phiêu du, phiêu du trên đỉnh đầu
-Và sẽ nói em nghe, em nghe, câu chuyện này là…
-Cả bầu trời vàng, đỏ, tím, xanh xanh
-Thuở thiếu niên thời tay nắm tay, cành lá me vàng ôm đắm say
-Nhẹ nhàng lá rơi, đọng lại vấn vương ven đường
-
-Gió ơi xin đừng lấy em đi
-Hãy mang em về chốn xuân thì
-Ngày nào còn bồi hồi tóc xanh
-Ngày nào còn trò chuyện vớ anh
-Em nói em thương anh mà
-Nói em yêu em mà
-Cớ sao ta lại hóa chia xa
-Đóa phong lan lặng lẽ mơ màng
-Nàng dịu dàng tựa đèn phố Vinh
-Đẹp rạng ngời chẳng cần cố Xinh
-Yêu em nhiều
-
-Lòng này nhói đau, thương em nhiều, cạn tình biển sâu
-Biển sâu anh hát
-Nếu có ước muốn ngược thời gian
-Nhắm mắt cố xóa dòng đời này ái phong trần vỡ tan
-Đành lòng sao em xé nát tan tâm can.. họa kì thư theo bóng trăng vàng
-Giá như bây giờ, giá như em ở đây
-
-Gió ơi xin đừng lấy em đi
-Hãy mang em về … về chốn xuân thì
-Ngày nào còn bồi hồi tóc xanh
-Ngày nào còn trò chuyện với anh
-Em nói em thương anh mà
-Nói em yêu em mà
-Cớ sao ta lại hóa chia xa
-Đóa phong lan lặng lẽ mơ màng
-Nàng dịu dàng tựa đèn phố Vinh
-Đẹp rạng ngời chẳng cần cố Xinh
-tao la phat
+Nam mô hắc ra đát na đa ra dạ da.
+Nam mô a rị da bà lô yết đế, thước bát ra da, bồ đề tát đỏa bà da, ma ha tát đỏa bà da, ma ha ca lô ni ca da. Án tát bàn ra phạt duệ, số đát na đát tỏa.
+Nam mô tất kiết lật đỏa, y mông a rị da, bà lô kiết đế, thất Phật ra lăng đà bà.
+Nam mô na ra cẩn trì hê rị, ma ha bàn đa sa mế, tát bà a tha đậu du bằng, a thệ dựng, tát bà tát đa, na ma bà già, ma phạt đạt đậu, đát điệt tha. Án, a bà lô hê, lô ca đế, ca ra đế, di hê rị, ma ha bồ đề tát đỏa, tát bà tát bà, ma ra ma ra, ma hê ma hê, rị đà dựng, cu lô cu lô, kiết mông độ lô độ lô, phạt xà da đế, ma ha phạt xà da đế, đà ra đà ra, địa rị ni, thất Phật ra da, dá ra dá ra. Mạ mạ phạt ma ra, mục đế lệ, y hê di hê, thất na thất na, a ra sâm Phật ra xá lợi, phạt sa phạt sâm, Phật ra xá da, hô lô hô lô, ma ra hô lô hô lô hê rị, ta ra ta ra, tất rị tất rị, tô rô tô rô, bồ đề dạ, bồ đề dạ, bồ đà dạ, bồ đà dạ, di đế rị dạ na ra cẩn trì địa rị sắc ni na, ba dạ ma na, ta bà ha. Tất đà dạ, ta bà ha. Ma ha tất đà dạ, ta bà ha. Tất đà du nghệ, thất bàn ra dạ, ta bà ha. Na ra cẩn trì, ta bà ha. Ma ra na ra, ta bà ha. Tất ra tăng a mục khê da, ta bà ha. Ta bà ma ha, a tất đà dạ, ta bà ha. Giả kiết ra a tất đà dạ, ta bà ha. Ba đà ma yết tất đà dạ, ta bà ha. Na ra cẩn trì bàn đà ra dạ, ta bà ha. Ma bà lị thắng yết ra dạ, ta bà ha.
+Nam mô hắc ra đát na, đa ra dạ da.
+Nam mô a rị da, bà lô yết đế, thước bàng ra dạ, ta bà ha.
