@@ -56,3 +56,4 @@ Cớ sao ta lại hóa chia xa
 Đóa phong lan lặng lẽ mơ màng
 Nàng dịu dàng tựa đèn phố Vinh
 Đẹp rạng ngời chẳng cần cố Xinh
+tao la phat
